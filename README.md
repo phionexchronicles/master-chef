@@ -1,0 +1,1 @@
+This recipe for Molten Lava Cake proves that Idahoan Mashed Potatoes don't have to be saved for just savory applications!
